@@ -8,6 +8,6 @@
 
 #### Site Görüntüsü
 
-![Site Görüntüsü](https://prnt.sc/x5bkqb)
+![Site Görüntüsü](https://dosya.co/1507q7vzt7bk/sol_1.png.html)
 
 [Kişisel Web Sitem](https://harundogdu.com.tr/)
